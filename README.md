@@ -1,2 +1,0 @@
-# teknoaile
-Renault Teknoaile
